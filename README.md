@@ -1,2 +1,2 @@
-# fuzzy-peach-butt
-Tribute Page to Vash the Cat AKA Vash the Stampede
+# wednesday-writers
+Weekly Inspiration for Writers
